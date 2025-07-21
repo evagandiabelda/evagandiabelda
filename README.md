@@ -1,4 +1,4 @@
-# Hola, soc Eva Gandia Belda 😊
+# Hola, soc Eva 😊
 
 Soc dissenyadora gràfica i estudiant de DAW.
 
